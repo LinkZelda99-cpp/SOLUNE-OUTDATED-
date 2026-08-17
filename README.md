@@ -1,1 +1,1 @@
-An UNDERTALE fangame. This page is currently dead. I an trying to revive it!
+this page is outdated and only here as a fallback
